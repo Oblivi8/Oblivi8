@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Oblivi8
+- 👀 I’m interested in Linux, Devlopment
+- 🌱 I’m currently learning Redhat Linux.
+- 📫 How to reach me @shreyas kolharkar for LinkedIn, @Shreyas45766439 for Twitter, @kolharkarshreyas for Instagram.
